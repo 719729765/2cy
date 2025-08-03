@@ -1,0 +1,26 @@
+---
+title: "海狸浮生记  Timberborn  v0.5.3.0 中文网盘下载"
+date: 2025-02-04
+tags: ["其他", "城市", "工作", "建造", "模拟", "生活", "管理"]
+categories: ["PC游戏"]
+excerpt: "游戏介绍 　海狸浮生记(Timberborn)是一款木匠朋克风格的城市建造模拟游戏，以人类灭绝后的海狸社会为背景，利用海狸的天赋建造精密的木材机械和建筑。管理并繁荣一片海狸社区，看看你能延续多久。 满足海狸社会的需要，提升居民的寿命和幸福度。一只海狸的生活不应该只是“工作、睡觉、伐木”，还需要平衡饮&hellip;"
+layout: post
+---
+
+<div>
+<div></div>
+<div>
+<p style="text-align: center;"><img style="display: block; margin-left: auto; margin-right: auto; width: 100%; height: auto;" src="https://2cy.202588.cn/wp-content/uploads/2025/02/20250204_67a225e6f0f4b.webp" alt="海狸浮生记 Timberborn v0.5.3.0 中文网盘下载" /></p>
+
+<h2 style="text-align: left; text-indent: 2em; white-space: normal;">游戏介绍</h2>
+<p style="text-align: left; text-indent: 2em; white-space: normal;">　海狸浮生记(Timberborn)是一款木匠朋克风格的城市建造模拟游戏，以人类灭绝后的海狸社会为背景，利用海狸的天赋建造精密的木材机械和建筑。管理并繁荣一片海狸社区，看看你能延续多久。
+满足海狸社会的需要，提升居民的寿命和幸福度。一只海狸的生活不应该只是“工作、睡觉、伐木”，还需要平衡饮食、装饰、庙宇、甚至旋转木马。这些东西都由你来创造。
+解锁拥有独特风格与特性的海狸家族。有些物种适合长时间劳作，其他的则更擅长繁衍后代。按照你的游戏风格选择吧！
+使用游戏内置地图或创建自己的地图并与社区分享！你可以创建不同高度的山脉、散落沙漠的废墟、蜿蜒的河流……每张地图都会有不同的挑战。</p>
+
+<h2 style="text-align: left; text-indent: 2em; white-space: normal;"></h2>
+</div>
+</div>
+
+---
+📖 **下载地址/原文地址：** 本文最初发布于我的博客网站：[https://2cy.202588.cn/2025/02/5674/](https://2cy.202588.cn/2025/02/5674/)
